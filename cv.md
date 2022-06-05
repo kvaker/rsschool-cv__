@@ -40,7 +40,7 @@ Education
 
 Work experience
 -----------
-2008-2022: **Media and Design**; magazine "VB"    
+2008-2022: **Media and Design**; magazine "VBH"    
 
 
 Project
